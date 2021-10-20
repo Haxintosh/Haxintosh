@@ -4,5 +4,5 @@ You can reach me by discord: Canadian Geenk#7146 or my email: haxintosh.dev@gmai
 
 Currently learning `python`  
 
-I have multiple projects planne dbut they always need some budget ;/, it would meant the world to me if you can donate a little sum. (DON'T DONATE if you can't :D)  
+I have multiple projects planned ahead but they always need some budget ;/, it would meant the world to me if you can donate a little sum. (DON'T DONATE if you can't :D)  
 

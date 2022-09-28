@@ -1,5 +1,3 @@
-Hi, I am an highschool student who is learning about all sort of languages.
+Hi, I am a student who is learning computer sciences
 
-You can reach me by discord: Canadian Geenk#7146 or my email: haxintosh.dev@gmail.com.   
-
-Currently learning `python`  
+You can reach me by [mail](mailto:contact@sillygoosy.ca) (I might respond with another email depending on the inquiry)  
